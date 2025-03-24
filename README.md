@@ -16,4 +16,7 @@
 
 ## Charts
 
+![Image](https://github.com/user-attachments/assets/270b3a46-d15a-4747-9ab5-119f8304b917)
+![Image](https://github.com/user-attachments/assets/72820fc1-ef96-42f1-8c82-66170de83895)
+![Image](https://github.com/user-attachments/assets/df59d970-1e0d-4021-8f96-8645896ed186)
 
